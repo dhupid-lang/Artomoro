@@ -1,0 +1,2 @@
+# Artomoro
+Kasir UMKM
